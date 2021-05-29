@@ -4,6 +4,8 @@
 
 layout: page
 ---
+> November 25, 2009 - May 17, 2021
+
 ![](assets/bagel-cropped-compressed.jpg)
 
 There is no way that I can fully describe in words the profoundness and effect that Bagel had on my life.
@@ -14,4 +16,6 @@ It was Jeannie's idea to contact the breeder, to ask about beagles as a gift for
 
 That is, unless he peed on said bed. There's nothing like a puppy peeing on your bed or destroying a couch to try, and teach, patience. That damn dog destroyed probably...four couches, a ton of carpet, tons of toys, wood trim, a bunch of beds, people's shoes, and probably a million things I didn't even know about. Even in these frustrating moments, he left me many lessons to be learned that would shape who I am today. Perhaps I was not able to see, and unable to act on some of these in time. His "personality" prepared me for real challenges of fatherhood. Had I not cleaned up after him after he had gotten sick in the house, perhaps it would not be as easy to act and to do the right dad thing and clean up  the children after particularly messy car sickness episodes. Had he not been such a grumpy old jerk sometimes, perhaps I would not have skin as thick as a leather jacket when dealing with toddler tantrums. Had he not been the barkiest of barky dogs, perhaps I would be much more bothered with children screaming and crying (thanks for that).
 
-He taught me to cherish companionship.
+Bagel was my first boy. My first dog. I had dreamed about him for years before he came in to existence, and if you didn't know he was a dog, you would think he would pass as a real child or a parent. He was a distinct member of the family. He was loved by all. He loved everyone. He taught me important lessons about life. He taught me to cherish companionship, by always being there for me when I needed him the most. He taught me to love unconditionally, in the way only a dog can do. He taught me to enjoy the simple things in life, in the manner in which he derived so much enjoyment from simple things like grass or tennis balls. His memory continues to teach me lessons weeks after he's left us and I suspect this will continue for quite some time. Watching him pass in my arms is one of the most difficult memories I will never forget. Yet every time I think about him, although I'm filled with a great sadness, I'm also filled with relief knowing he's in a better place.
+
+We will love you and will miss you forevermore.
